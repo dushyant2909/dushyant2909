@@ -17,6 +17,8 @@
 
 - 📫 How to reach me **dushyantb2003@gmail.com**
 
+- 📄 Know about my experiences [https://drive.google.com/file/d/17F8mysRjkV5ODwMuZLbLhsd2ufAOMaDe/view?usp=sharing](https://drive.google.com/file/d/17F8mysRjkV5ODwMuZLbLhsd2ufAOMaDe/view?usp=sharing)
+
 - ⚡ Fun fact **I am a Sage Code Hooter!**
 
 <h3 align="left">Connect with me:</h3>
